@@ -5,3 +5,4 @@ ngg
 nggffgnn
 gnxnn
 gngngnb
+gd
